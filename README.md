@@ -1,0 +1,2 @@
+# VIRTUSPRIVACYPOLICY
+Privacy Policy for VIRTUS RPG Fit
